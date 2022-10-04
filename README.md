@@ -1,5 +1,5 @@
 # Top 3 Best Movies of All Time
-After having watched tons of movies throughout my life, these are the top 3 best films of all time, in my opinion. B)
+After having watched tons of movies throughout my life, I have come to gain some very strong opinions in the world of film; these are the top 3 best movies of all time, in my opinion. B)
 
 ## #3: Napoleon Dynamite
 ### Jared Hess, 2004
